@@ -15,4 +15,4 @@ I am currently part of the Dimension Data GAP 2020 program.
  
 ### Goals
 
- I am eager to learn as much as possible this year and in some way make a difference. My goal for this year is to learn as much as possible about Dimension Data as well as get in touch with my technical side as it is all completely new to me. However, I feel like making this website is a step in that direction.
+ I am eager to learn as much as possible this year and in some way make a difference. My goal for this year is to learn as much as possible about Dimension Data as well as get in touch with my technical side as it is all completely new to me. However, I feel like making this website is a step in that direction. 
