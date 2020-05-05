@@ -5,7 +5,7 @@ I am currently part of the Dimension Data GAP 2020 program.
 
 ### More about me:
 
- I am 23 years old and I grew up in Johnnesburg. I went to school at St Anrews School for Girls from grade 0-12 and I then went on to study at Stellenbosch University. I did a Bachelor of Arts, majoring in Political Science and English. I then did my honours at UCT in Management and Entrepreneurship.  
+ I am 23 years old and I grew up in Johnnesburg. I went to school at St Andrews School for Girls from grade 0-12 and I then went on to study at Stellenbosch University. I did a Bachelor of Arts, majoring in Political Science and English. I then did my honours at UCT in Management and Entrepreneurship.  
  
  I love cooking and obviously eating. It is a huge hobbie of mine and I spend all of my free time experimenting with different recipes. 
  
