@@ -1,7 +1,7 @@
 # Hello I'm Kim
 ## Welcome to My First GitHub Page
 
-![image](https://github.com/KimberleyJones1997/KimJones1997.github.io/blob/master/REAL%20TEAMS%20PIC.jpg)
+![REAL TEAMS PIC](https://user-images.githubusercontent.com/64779933/81268996-fc1c9c80-9048-11ea-8e8a-c90ac0db1940.jpg)
 
 I am currently part of the Dimension Data GAP 2020 program. 
 
